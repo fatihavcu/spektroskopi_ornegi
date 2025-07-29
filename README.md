@@ -1,0 +1,1 @@
+# spektroskopi_ornegi
